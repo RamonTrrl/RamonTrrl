@@ -6,7 +6,7 @@
 
 ### ✨ Y mis particulares "READMES"
 
-Hoy en la red podemos encontrar infinidad de espacios para diferentes aspectos como el comercio, la comunicación, particularmente rebosa de plataformas para el entretenimiento. También hay raros espacios para dar rienda a la creatividad en las que no esté omnipresente “el altruista espíritu del lucro, y que no quiera esquilmar los bolsillos”. Esas excepciones a la regla, que son escasos y sólo aspiran a ayudar a contribuir con la educación, tienen un espíritu que los motiva y mueve, el de <<transformar nuestro mundo, para hacerlo un poquito mejor>>, donde. la creatividad puede encontrar allí un verdadero caldo de cultivo para que desate toda la furia que lleva dentro ... Un lugar donde es posible enseñar, pero sobre todo es un medio donde es uno de los mejores espacios para aprender.📚
+Hoy en la red podemos encontrar infinidad de espacios para diferentes aspectos como el comercio, la comunicación, particularmente rebosa de plataformas para el entretenimiento. También hay raros espacios para dar rienda a la creatividad en las que no esté omnipresente [“el altruista espíritu del lucro, y que no quiera esquilmar los bolsillos”](https://cronicasdeilusos.blogspot.com/2025/06/regalos-de-alguna-app-usurera.html). Esas excepciones a la regla, que son escasos y sólo aspiran a ayudar a contribuir con la educación, tienen un espíritu que los motiva y mueve, el de <<transformar nuestro mundo, para hacerlo un poquito mejor>>, donde. la creatividad puede encontrar allí un verdadero caldo de cultivo para que desate toda la furia que lleva dentro ... Un lugar donde es posible enseñar, pero sobre todo es un medio donde es uno de los mejores espacios para aprender.📚
 
 ---
 
@@ -16,7 +16,7 @@ digital debería estar sustentada, para caer rendido a sus pies: **"buena, bonit
 
 ---
 
-No obstante, nuestro amor con esta plataforma no fue amor a primera vista, ni mucho menos deslumbrante, ya que al ser una "app" propia para alojar código versionado, cuando me atreví por primera vez a echar un vistazo panorámico a su interfaz, la primera impresión fue intimidante, la veía muy frondosa y poco intuitiva. Una estructura que me era un poco difícil de leerla o interpretarla. Y es que, al ser yo un tipo que solo trata de escarcear en los lenguajes estructurados <<pues>> me costó un poco el llegar a conocerla, sin embargo, en la medida que nos íbamos descubriendo mutuamente, el amor floreció.💘
+No obstante, [nuestro amor con esta plataforma no fue amor a primera vista](https://cronicasdeilusos.blogspot.com/2023/12/el-primer-amor.html), ni mucho menos deslumbrante, ya que al ser una "app" propia para alojar código versionado, cuando me atreví por primera vez a echar un vistazo panorámico a su interfaz, la primera impresión fue intimidante, la veía muy frondosa y poco intuitiva. Una estructura que me era un poco difícil de leerla o interpretarla. Y es que, al ser yo un tipo que solo trata de escarcear en los lenguajes estructurados <<pues>> me costó un poco el llegar a conocerla, sin embargo, en la medida que nos íbamos descubriendo mutuamente, el amor floreció.💘
 
 ---
 
@@ -28,20 +28,20 @@ No obstante, nuestro amor con esta plataforma no fue amor a primera vista, ni mu
 
 ### 📚 Mi otra afición: las letras
 
-Provengo de las canteras literarias que desde muy chibolo inicié como un pasatiempo, y que
+Provengo de [las canteras literarias que desde muy chibolo inicié como un pasatiempo](https://cronicasdeilusos.blogspot.com/2021/12/mi-periodico-mural.html), y que
 a través del tiempo, esa aventura núbil se transformó en una forma de expresarme, de ser yo
 mismo, una manera de vivir mi propio mundo... tratando de imprimir en cada texto, en cada
 letra escrita, mi forma particular de mirar el mundo, siempre con mi sello distintivo:
 **"un estilo jocoso"**, donde la sátira ligera se esmera en entretener, y muy de pasadita,
 dejar alguna que otra reflexión. 😂
 
-Siempre con la idea, que esa interpretación se abra paso, en este mundo donde ya nadie lee nada, ni siquiera a "condorito". Estamos en una etapa donde la lectura es una cualidad ya casi extinta. Pero como soy un tipo de la vieja escuela, que le encanta ir contracorriente, espero llegar a descubrir ese mínimo auditorio que estoy seguro que subsiste, y que disfruta leer, y trasciende y escapa a la cultura de la satisfacción inmediata, a esa cultura visual del scroll, a la cultura de la impaciencia y del clic...😂
+Siempre con la idea, que esa interpretación se abra paso, en este mundo donde [ya nadie lee nada, ni siquiera a "condorito"](https://cronicasdeilusos.blogspot.com/2021/08/las-coboyadas.html). Estamos en una etapa donde la lectura es una cualidad ya casi extinta. Pero como soy un tipo de la vieja escuela, que le encanta ir contracorriente, espero llegar a descubrir ese mínimo auditorio que estoy seguro que subsiste, y que disfruta leer, y trasciende y escapa a la cultura de la satisfacción inmediata, a esa cultura visual del scroll, a la cultura de la impaciencia y del clic...😂
 
 ---
 
 ### 👴💻 Yo, la tecología y los ***"hnos TV"***
 
-Después de muchos años de haber permanecido displicente de los medios digitales, y por supuesto, con la tenacidad obtusa y persistente de mis ***"hnos TV"*** que, con su ayuda, ya que me surtieron de "sendos pc's de sobremesa y regazo" mi oscurantismo pudo por fin llegar a su fin, y no tuve más opción que enrumbar mis caminos por las sendas nuevas e ignotas para mí, como lo eran los lenguajes binarios. Sendas digitales que, para mí, un tipo cincuentón, fue todo un desafío, más paso a paso y, sobre todo tropiezo en tropiezo, empecé mi cabalgata sobre los lomos de las diferentes plataformas digitales, para empezar a dar mis primeros arañazos en un mundo totalmente fascinante y del cual quedé prendado.👴📖💻
+[Después de muchos años de haber permanecido displicente de los medios digitales](https://cronicasdeilusos.blogspot.com/2025/02/locos-por-la-tecnologia.html), y por supuesto, con la tenacidad obtusa y persistente de mis ***"hnos TV"*** que, con su ayuda, ya que me surtieron de "sendos pc's de sobremesa y regazo" mi oscurantismo pudo por fin llegar a su fin, y no tuve más opción que enrumbar mis caminos por las sendas nuevas e ignotas para mí, como lo eran los lenguajes binarios. Sendas digitales que, para mí, un tipo cincuentón, fue todo un desafío, más paso a paso y, sobre todo tropiezo en tropiezo, empecé mi cabalgata sobre los lomos de las diferentes plataformas digitales, para empezar a dar mis primeros arañazos en un mundo totalmente fascinante y del cual quedé prendado.👴📖💻
 
 ---
 
