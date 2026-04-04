@@ -1,5 +1,5 @@
 ## Mí paso por GitHub 👋
-### Y mis particulres "readmes"
+### Y mis particulares "READMES"
 Hoy en la red podemos encontrar infinidad de espacios para diferentes aspectos como el comercio, la comunicación, particularmente rebosa de plataformas para el entretenimiento. También hay raros espacios para dar rienda a la creatividad en las que no esté omnipresente “el altruista espíritu del lucro, y que no quiera esquilmar los bolsillos”. Esas excepciones a la regla, que son escasos y sólo aspiran a ayudar a contribuir con la educación, tienen un espíritu que los motiva y mueve, el de <<transformar nuestro mundo, para hacerlo un poquito mejor>>, donde. la creatividad puede encontrar allí un verdadero caldo de cultivo para que desate toda la furia que lleva dentro ... Un lugar donde es posible enseñar, pero sobre todo es un medio donde es uno de los mejores espacios para aprender. 
 
 Entre esas "hierbas raras" está sin duda, "este octocat (GH)", que sobradamente cumple muy bien y, a cabalidad, todas mis expectativas de las tres "b”, en las que toda plataforma digital debería de estar sustentada, para caer rendido a sus pies: "buena, bonita y de balde". 
