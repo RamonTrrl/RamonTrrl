@@ -20,7 +20,7 @@ No obstante, [nuestro amor con esta plataforma no fue amor a primera vista](http
 
 ---
 
-> *Ahora, ya con un poco de camino recorrido y con varios "repos comiteados" tanto en código
+> *Ahora, ya con un poco de camino recorrido y [con varios "repos comiteados"](https://github.com/RamonTrrl?tab=repositories) tanto en código
 > como en otros formatos, podría decir que nuestro amor se encuentra en esas etapas donde
 > todo es dicha y placer.* `</>`
 
