@@ -10,7 +10,7 @@ Hoy en la red podemos encontrar infinidad de espacios para diferentes aspectos c
 
 ---
 
-Entre esas *"hierbas raras"* está sin duda, **"este octocat (GH)"**, que sobradamente cumple
+[Entre esas *"hierbas raras"* está sin duda, **"este octocat (GH)"**](https://jifinetcom.wordpress.com/2025/01/24/github-a-social-network-as-it-should-be/), que sobradamente cumple
 muy bien y, a cabalidad, todas mis expectativas de las tres **"b"**, en las que toda plataforma
 digital debería estar sustentada, para caer rendido a sus pies: **"buena, bonita y de balde"**. 💯
 
