@@ -1,6 +1,7 @@
 # 🚀 Mi paso por GitHub 👋
 
 <img src="https://raw.githubusercontent.com/RamonTrrl/RamonTrrl/main/avatar_GitHub.png" width="150"/>
+[![GitHub](https://img.shields.io/badge/GitHub-RamonTrrl-181717?style=flat&logo=github)](https://github.com/RamonTrrl)
 
 ---
 
