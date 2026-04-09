@@ -31,11 +31,11 @@ No obstante, [nuestro amor con esta plataforma no fue amor a primera vista](http
 ### 📚 Mi otra afición: las letras
 
 Provengo de [las canteras literarias que desde muy chibolo inicié como un pasatiempo](https://cronicasdeilusos.blogspot.com/2021/12/mi-periodico-mural.html), y que
-a través del tiempo, esa aventura núbil se transformó en una forma de expresarme, de ser yo
-mismo, una manera de vivir mi propio mundo... tratando de imprimir en cada texto, en cada
+a través del tiempo, esa aventura núbil se transformó en una forma de expresarme, a través de mis rimas o de mi prosa exubertante, que delataban mi forma de ser ***"yo
+mismo"***, una manera de vivir mi propio mundo... tratando de imprimir en cada texto, en cada
 letra escrita, mi forma particular de mirar el mundo, siempre con mi sello distintivo:
 **"un estilo jocoso"**, donde la sátira ligera se esmera en entretener, y muy de pasadita,
-dejar alguna que otra reflexión. 😂
+dejar alguna que otra reflexión... bueno eso espero!! 😂
 
 Siempre con la idea, que esa interpretación se abra paso, en este mundo donde [ya nadie lee nada, ni siquiera a "condorito"](https://cronicasdeilusos.blogspot.com/2021/08/las-coboyadas.html). Estamos en una etapa donde la lectura es una cualidad ya casi extinta. Pero como soy un tipo de la vieja escuela, que le encanta ir contracorriente, espero llegar a descubrir ese mínimo auditorio que estoy seguro que subsiste, y que disfruta leer, y trasciende y escapa a la cultura de la satisfacción inmediata, a esa cultura visual del scroll, a la cultura de la impaciencia y del clic...😂
 
