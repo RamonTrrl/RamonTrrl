@@ -50,7 +50,7 @@ Siempre con la idea, que esa interpretación se abra paso, en este mundo donde [
 ### 😄 Mi sello en cada README
 
 Este *"octocat"* no podría estar al margen de **"mi primera afición"**, por lo que en cada
-*readme*, en cada proyecto alojado en él, trato de dejar mi identidad, ese sello literario,
+*readme*, en cada proyecto alojado en él, trato de dejar mi identidad, ese sello literario que me define,
 con la idea de hacer de mi particular repositorio, un lugar donde puedes leer código…
 **pero al mismo tiempo, puedes también leer algunas breves historias**. 😄
 
