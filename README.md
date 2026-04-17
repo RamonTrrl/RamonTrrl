@@ -52,7 +52,7 @@ Siempre con la idea, que esa interpretación se abra paso, en este mundo donde [
 Este *"octocat"* no podría estar al margen de **"mi primera afición"**, por lo que en cada
 *readme*, en cada proyecto alojado en él, trato de dejar mi identidad, ese sello literario que me define,
 con la idea de hacer de mi particular repositorio, un lugar donde puedes leer código…
-**pero al mismo tiempo, puedes también leer algunas breves historias**. 😄
+**pero al mismo tiempo, puedes también leer algunas breves historias**. <img src="https://raw.githubusercontent.com/RamonTrrl/Responsive-Web-Design-FCC/main/plop-ico.png" alt="Plop" width="40" style="vertical-align: middle;">!!
 
   
 
