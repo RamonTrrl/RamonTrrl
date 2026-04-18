@@ -1,4 +1,9 @@
-#   <img src="https://raw.githubusercontent.com/RamonTrrl/RamonTrrl/main/avatar_guinandoSinFondo.webp" width="50" style="border-radius:50%; vertical-align:middle; margin-right:10px"/> Mi paso por GitHub 👋
+#   <img src="https://raw.githubusercontent.com/RamonTrrl/RamonTrrl/main/avatar_guinandoSinFondo.webp" width="50" style="border-radius:50%; vertical-align:middle; margin-right:10px"/> Mi paso por GitHub 👏
+
+
+---
+
+
 [![GitHub](https://img.shields.io/badge/GitHub-RamonTrrl-181717?style=flat&logo=github)](https://github.com/RamonTrrl)
 
 
