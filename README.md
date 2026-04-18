@@ -18,7 +18,7 @@ digital debería estar sustentada, para caer rendido a sus pies: **"buena, bonit
 
 ---
 
-No obstante, [nuestro amor con esta plataforma no fue amor a primera vista](https://cronicasdeilusos.blogspot.com/2023/12/el-primer-amor.html), ni mucho menos deslumbrante, ya que al ser una "app" propia para alojar código versionado, cuando me atreví por primera vez a echar un vistazo panorámico a su interfaz, la primera impresión fue intimidante, la veía muy frondosa y poco intuitiva. Una estructura que me era un poco difícil de leerla o interpretarla. Y es que, al ser yo un tipo que solo trata de escarcear en los lenguajes estructurados <<pues>> me costó un poco el llegar a conocerla, sin embargo, en la medida que nos íbamos descubriendo mutuamente, el amor floreció.💘
+No obstante, [nuestro amor con esta plataforma no fue amor a primera vista](https://cronicasdeilusos.blogspot.com/2023/12/el-primer-amor.html), ni mucho menos deslumbrante, ya que al ser una "app" propia para alojar código versionado, cuando me atreví por primera vez a echar un vistazo panorámico a su interfaz, la primera impresión fue intimidante, la veía muy frondosa y poco intuitiva. Una estructura que me era un poco difícil de leerla o interpretarla. Y es que, al ser yo un tipo que solo trata de escarcear en los lenguajes estructurados </> pues me costó un poco el llegar a conocerla, sin embargo, en la medida que nos íbamos descubriendo mutuamente, el amor floreció.💘
 
 ---
 
