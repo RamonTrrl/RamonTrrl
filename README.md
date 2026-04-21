@@ -44,6 +44,8 @@ dejar alguna que otra reflexión... bueno eso espero!! 😂
 
 Siempre con la idea, que esa interpretación se abra paso, en este mundo donde [ya nadie lee nada, ni siquiera a "condorito"](https://cronicasdeilusos.blogspot.com/2021/08/las-coboyadas.html). Estamos en una etapa donde la lectura es una cualidad ya casi extinta. Pero como soy un tipo de la vieja escuela, que le encanta ir contracorriente, espero llegar a descubrir ese mínimo auditorio que estoy seguro que subsiste, y que disfruta leer, y trasciende y escapa a la cultura de la satisfacción inmediata, a esa cultura visual del scroll, a la cultura de la impaciencia y del clic...😂
 
+Letra chiquita: "¡Queda terminantemente prohíbido visitar uno de mis pasatiempos favoritos ✍️ [Crónicas de un observador](https://cronicasdeilusos.blogspot.com/) - *"el blog que nadie lee y a nadie le importa"* 
+
 ---
 
 ### 👴💻 Yo, la tecología y los ***"hnos TV"***
